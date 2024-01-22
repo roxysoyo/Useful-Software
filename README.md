@@ -1,4 +1,4 @@
-# Useful Tiny Softwares:rocket:(updating)
+# Useful Tiny Softwares (updating)
 
 ## Software that can be downloaded from the website:
 
